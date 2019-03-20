@@ -16,6 +16,7 @@ Anyway the wind blows, doesn't really matter to me, to me.<br>
 
 
 
+
 ### 2
 Mama, just killed a man
 Put a gun against his head
@@ -44,6 +45,16 @@ I'm just a poor boy and nobody loves me
 He's just a poor boy from a poor family
 Spare him his life from this monstrosity
 Easy come easy go will you let me go
+
+
+### 6
+Bismillah, no we will not let you go, let him go
+Bismillah, we will not let you go, let him go
+Bismillah, we will not let you go, let me go
+(Will not let you go) let me go (never, never let you go) let me go (never let me go)
+Oh oh no, no, no, no, no, no, no
+Oh mama mia, mama mia, mama mia let me go
+Beelzebub has a devil put aside for me for me for me
 
 
 ### 7
