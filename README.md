@@ -29,7 +29,15 @@ If I'm not back again this time tomorrow
 Carry on, carry on, as if nothing really matters
 
 
-
+##-----------3--------------
+Too late, my time has come 
+Sends shivers down my spine
+Body's a ching all the time
+Goodbye everybody i've got to go
+Gotta leave you all behind and face the truth
+Mama, oh oh (anyway the wind blows)
+I don't want to die
+Sometimes wish i'd never been born at all
 
 
 
@@ -71,21 +79,6 @@ Nothing really matters
 Nothing really matters to me
 Anyway the wind blows
 
-
-
-
-
-
-
------------3--------------
-Too late, my time has come 
-Sends shivers down my spine
-Body's a ching all the time
-Goodbye everybody i've got to go
-Gotta leave you all behind and face the truth
-Mama, oh oh (anyway the wind blows)
-I don't want to die
-Sometimes wish i'd never been born at all
 
 
    ## ----------------4-------------
