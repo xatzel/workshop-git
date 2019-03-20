@@ -40,10 +40,10 @@ Carry on, carry on, as if nothing really matters
 
 
 ### 4
-I see a little silhouetto of a man
-Scaramouch, Scaramouch will you do the Fandango
-Thunderbolt and lightning very very frightening me
-Gallileo, Gallileo, Gallileo, Gallileo, Gallileo, figaro, magnifico
+I see a little silhouetto of a man<br>
+Scaramouch, Scaramouch will you do the Fandango<br>
+Thunderbolt and lightning very very frightening me<br>
+Gallileo, Gallileo, Gallileo, Gallileo, Gallileo, figaro, magnifico<br>
 
 ### 5
 I'm just a poor boy and nobody loves me
