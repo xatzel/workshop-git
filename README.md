@@ -17,6 +17,7 @@ Anyway the wind blows, doesn't really matter to me, to me.<br>
 
 
 
+
 ### 2<br>
 Mama, just killed a man<br>
 Put a gun against his head<br>
@@ -29,12 +30,7 @@ If I'm not back again this time tomorrow<br>
 Carry on, carry on, as if nothing really matters<br>
 
 
-
-
-
-
-
- ## ----------------4-------------
+### 4
 I see a little silhouetto of a man
 Scaramouch, Scaramouch will you do the Fandango
 Thunderbolt and lightning very very frightening me
@@ -78,7 +74,7 @@ Anyway the wind blows
 
 
 -----------3--------------
-Too late, my time has come 
+Too late, my time has come
 Sends shivers down my spine
 Body's a ching all the time
 Goodbye everybody i've got to go
@@ -87,12 +83,6 @@ Mama, oh oh (anyway the wind blows)
 I don't want to die
 Sometimes wish i'd never been born at all
 
-
-   ## ----------------4-------------
-I see a little silhouetto of a man
-Scaramouch, Scaramouch will you do the Fandango
-Thunderbolt and lightning very very frightening me
-Gallileo, Gallileo, Gallileo, Gallileo, Gallileo, figaro, magnifico
 
 ### Compositores: Freddie Mercury
 ### Letra de Bohemian Rhapsody © Sony/ATV Music Publishing LLC
