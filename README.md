@@ -35,12 +35,23 @@ Carry on, carry on, as if nothing really matters
 
 
 
+### 2<br>
+Mama, just killed a man<br>
+Put a gun against his head<br>
+Pulled my trigger, now he's dead<br>
+Mama, life had just begun<br>
+But now I've gone and thrown it all away<br>
+Mama, oh oh<br>
+Didn't mean to make you cry<br>
+If I'm not back again this time tomorrow<br>
+Carry on, carry on, as if nothing really matters<br>
+
 
 ### 4
-I see a little silhouetto of a man
-Scaramouch, Scaramouch will you do the Fandango
-Thunderbolt and lightning very very frightening me
-Gallileo, Gallileo, Gallileo, Gallileo, Gallileo, figaro, magnifico
+I see a little silhouetto of a man<br>
+Scaramouch, Scaramouch will you do the Fandango<br>
+Thunderbolt and lightning very very frightening me<br>
+Gallileo, Gallileo, Gallileo, Gallileo, Gallileo, figaro, magnifico<br>
 
 ### 5
 I'm just a poor boy and nobody loves me
