@@ -14,20 +14,28 @@ Because I'm easy come, easy go<br>
 A little high, little low<br>
 Anyway the wind blows, doesn't really matter to me, to me.<br>
 
-
-
-
 ### 2
 Mama, just killed a man
 Put a gun against his head
 Pulled my trigger, now he's dead
 Mama, life had just begun
 But now I've gone and thrown it all away
-Mama, oh oh 
+Mama, oh oh
 Didn't mean to make you cry
 If I'm not back again this time tomorrow
 Carry on, carry on, as if nothing really matters
 
+
+### 2<br>
+Mama, just killed a man<br>
+Put a gun against his head<br>
+Pulled my trigger, now he's dead<br>
+Mama, life had just begun<br>
+But now I've gone and thrown it all away<br>
+Mama, oh oh<br>
+Didn't mean to make you cry<br>
+If I'm not back again this time tomorrow<br>
+Carry on, carry on, as if nothing really matters<br>
 
 ##-----------3--------------
 Too late, my time has come 
@@ -40,13 +48,11 @@ I don't want to die
 Sometimes wish i'd never been born at all
 
 
-
-
- ## ----------------4-------------
-I see a little silhouetto of a man
-Scaramouch, Scaramouch will you do the Fandango
-Thunderbolt and lightning very very frightening me
-Gallileo, Gallileo, Gallileo, Gallileo, Gallileo, figaro, magnifico
+### 4
+I see a little silhouetto of a man<br>
+Scaramouch, Scaramouch will you do the Fandango<br>
+Thunderbolt and lightning very very frightening me<br>
+Gallileo, Gallileo, Gallileo, Gallileo, Gallileo, figaro, magnifico<br>
 
 ### 5
 I'm just a poor boy and nobody loves me
@@ -66,9 +72,9 @@ Beelzebub has a devil put aside for me for me for me
 
 
 ### 7
-So you think you can stop me and spit in my eye
-So you think you can love me and leave me to die
-Oh baby can't do this to me baby
+So you think you can stop me and spit in my eye  
+So you think you can love me and leave me to die  
+Oh baby can't do this to me baby  
 Just gotta get out just gotta get right outta here
 
 ---*8*----
@@ -79,13 +85,6 @@ Nothing really matters
 Nothing really matters to me
 Anyway the wind blows
 
-
-
-   ## ----------------4-------------
-I see a little silhouetto of a man
-Scaramouch, Scaramouch will you do the Fandango
-Thunderbolt and lightning very very frightening me
-Gallileo, Gallileo, Gallileo, Gallileo, Gallileo, figaro, magnifico
-
 ### Compositores: Freddie Mercury
 ### Letra de Bohemian Rhapsody © Sony/ATV Music Publishing LLC
+
