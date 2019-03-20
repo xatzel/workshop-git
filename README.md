@@ -14,6 +14,23 @@ Because I'm easy come, easy go<br>
 A little high, little low<br>
 Anyway the wind blows, doesn't really matter to me, to me.<br>
 
+### 2
+Mama, just killed a man
+Put a gun against his head
+Pulled my trigger, now he's dead
+Mama, life had just begun
+But now I've gone and thrown it all away
+Mama, oh oh
+Didn't mean to make you cry
+If I'm not back again this time tomorrow
+Carry on, carry on, as if nothing really matters
+
+
+
+
+
+
+
 
 
 
@@ -54,9 +71,9 @@ Beelzebub has a devil put aside for me for me for me
 
 
 ### 7
-So you think you can stop me and spit in my eye
-So you think you can love me and leave me to die
-Oh baby can't do this to me baby
+So you think you can stop me and spit in my eye  
+So you think you can love me and leave me to die  
+Oh baby can't do this to me baby  
 Just gotta get out just gotta get right outta here
 
 ---*8*----
@@ -84,5 +101,7 @@ I don't want to die
 Sometimes wish i'd never been born at all
 
 
+
 ### Compositores: Freddie Mercury
 ### Letra de Bohemian Rhapsody © Sony/ATV Music Publishing LLC
+
