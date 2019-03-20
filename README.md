@@ -4,17 +4,20 @@
 
 
 
-*1*<br>
-Is this the real life?<br>
-Is this just fantasy?<br>
-Caught in a landslide<br>
-No escape from reality<br>
-Open your eyes<br>
-Look up to the skies and see<br>
-I'm just a poor boy, I need no sympathy<br>
-Because I'm easy come, easy go<br>
-A little high, little low<br>
-Anyway the wind blows, doesn't really matter to me, to me.<br>
+### 2
+Mama, just killed a man
+Put a gun against his head
+Pulled my trigger, now he's dead
+Mama, life had just begun
+But now I've gone and thrown it all away
+Mama, oh oh 
+Didn't mean to make you cry
+If I'm not back again this time tomorrow
+Carry on, carry on, as if nothing really matters
+
+
+
+
 
 ### 5
 I'm just a poor boy and nobody loves me
